@@ -1,0 +1,1 @@
+# MojeG-wnoProgramy
